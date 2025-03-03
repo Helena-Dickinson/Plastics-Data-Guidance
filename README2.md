@@ -1,27 +1,5 @@
 
 
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 We connect knowledge and people to make small steps towards big changes
 Table of Contents
 	1
